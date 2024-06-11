@@ -1,16 +1,24 @@
-## Hi there 👋
+# currículo do Matheus Santos 
+11948445320
 
-<!--
-**CUCABELUDO6969/CUCABELUDO6969** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# objetivos 
+-melhorar na carreira profissional 
+-criar e gerências projetos
+-administração de negócios 
 
-Here are some ideas to get you started:
+# formação 
+-Escola Estadual Professor Doutor Laerte Ramos De Carvalho-2024 (cursando último ano do ensino médio)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# habilidades 
+-facilidade em trabalho em equipe
+-fácil aprendizado 
+-boa comunicação 
+-boa liderança 
+
+# idiomas 
+-inglês intermediário (cursando)
+
+
+
+
+
